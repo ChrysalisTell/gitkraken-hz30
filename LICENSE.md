@@ -1,4 +1,4 @@
-# 
+# updated JetBrains IntelliJ IDEA for PC addons is the best JetBrains IntelliJ IDEA for PC addons with debugger and device-manager. Safe, reliable, and optimized for maximum
 
 
 
